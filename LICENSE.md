@@ -1,4 +1,4 @@
-# 
+# Enhance Sejda PDF for PC | Sejda PDF for Windows with vip Sejda PDF for PC | Sejda PDF for Windows Helper | OCR + bookmarks, the #1 helper. Includes OCR and bookmarks for a
 
 
 
